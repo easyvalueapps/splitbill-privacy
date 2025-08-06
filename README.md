@@ -46,4 +46,4 @@ For privacy questions: easyvalueapps@gmail.com
 - ✅ **Professional styling** with emojis
 
 ---
-*Developed with ❤️ in Brazil 🇧🇷 | Updated: August 6, 2025*
+Updated: August 6, 2025*
